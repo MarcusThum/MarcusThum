@@ -6,5 +6,3 @@
                   <!--- 🦾🦾 This is my GitHub Repository 😇😇 -->>
                     
             🧱💰📡📧          Feel Free to Hit me Up.         🧱💰📡📧
-   
-        💊 💉 🩸 🧬 🦠 🧫 🧪 Discord Marcus#9851  💊 💉 🩸 🧬 🦠 🧫 🧪
